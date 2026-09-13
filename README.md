@@ -1,7 +1,3 @@
-Here is the corrected and polished version of your guide. I fixed some typos (like "Sptember", "craytal celar", "suvenirs", and "appartment"), smoothed out the grammar for a more natural flow, and kept all of your excellent personal tips intact.
-
----
-
 # Welcome to Our Apartment in Budoni!
 
 Welcome to our apartment in Budoni! We are thrilled to host you in beautiful Sardinia. To help you settle in quickly and make the most of your time here, we’ve put together this quick guide. It contains everything you need to know about how the apartment works—from the strict local recycling rules to the heating—as well as a list of our favorite nearby beaches and restaurants. Please make yourself at home, and we hope you have a relaxing and unforgettable holiday!
